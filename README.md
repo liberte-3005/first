@@ -1,2 +1,0 @@
-# friendly-journey
-＃awesome
